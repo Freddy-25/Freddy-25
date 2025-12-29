@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @eddyfreddy90902 - twitter
 - 😄 Pronouns: ...
-- ⚡ Fun fact: fun
+- ⚡ Fun fact: im not fun =(
 
 <!---
 Freddy-25/Freddy-25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
