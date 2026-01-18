@@ -6,6 +6,7 @@
 - 😄 Pronouns: Just call me Saul...
 - ⚡ Fun fact: im not fun =(
 - (im just kidding)
+- Create something is fun )
 
 <!---
 Freddy-25/Freddy-25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
