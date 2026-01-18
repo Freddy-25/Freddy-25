@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Freddy-25
+- 👋 Hi, I’m Bellato 
 - 👀 I’m interested in Video Games, Crypto, IT
 - 🌱 I’m currently learning Crypto and AI
 - 💞️ I’m looking to collaborate on ... BASE
