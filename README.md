@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Freddy-25
 - 👀 I’m interested in Video Games, Crypto, IT
-- 🌱 I’m currently learning Crypto
+- 🌱 I’m currently learning Crypto and AI
 - 💞️ I’m looking to collaborate on ... BASE
 - 📫 How to reach me @eddyfreddy90902 - twitter
 - 😄 Pronouns: Just call me Saul...
