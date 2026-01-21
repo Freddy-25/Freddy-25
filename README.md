@@ -7,7 +7,7 @@
 - ⚡ Fun fact: im not fun =(
 - (im just kidding)
 - Create something is fun )
--
+- I am newbie in crypto
 -
 - 
 -
